@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @soominnyu
+- 👋 Hi, I’m U sumin
